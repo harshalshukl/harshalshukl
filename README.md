@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi there I am Harshal :wave:
+[LinkedIn](https://www.linkedin.com/in/harshal-shukl-0144121b6/)
 <!--
 **harshalshukl/harshalshukl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
